@@ -39,3 +39,15 @@ if it was possible for a team to meet Noah earlier than Monday 31th.
 Kim got upset, and asked Maggie what she would do. 
 Maggie said sometime people have to go through horrible experiences like the hospital before they can accept the consequences and get help.
 
+At **3:45** Maggie called Kim and asked to speak to Noah. Noah refused to talk to Maggie.
+
+Kim asked questions to Maggie about calling 000. Maggie suggested he call 000 if he communicated an immediate risk.
+What are the chances of the home visit.
+
+IF we called 000 he would end up in accident emergency and be triaged. If it wasn't a physical risk he would be moved to Wattle.
+
+
+Maggie is off on training on Wednesday. There will be discussion tomorrow. They want the home visit to be after the medication takes effect.
+She has asked Emily to call us tomorrow.
+
+Hermann's office is just across the road from Coles. We have an appointment for 10:00 am.
