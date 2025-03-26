@@ -2,11 +2,27 @@
 
 Noah is discharged from Wattyl.
 
+We were told that he was in the hands of the outreach team.
+
 **Thursday 27/2/2025**
 
 Emily and Maggie vist Noah. The meeting lasts for 20 minutes.
 
 At the end of the meeting, Emily and Maggie spoke to Kim for an hour.
+
+**Monday 3/3/2025**
+
+Received an email from Justin Williams.
+
+    Hi Kim,
+
+    I am very sorry for the delay in getting back to you. This is just to acknowledge your e-mail. 
+    I will talk to the Young Adult team tomorrow and either I or another member of the team will 
+    get back to you.
+
+    Best wishes
+ 
+    Justin
 
 **Monday 10/3/2025**
 
