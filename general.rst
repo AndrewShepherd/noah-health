@@ -13,8 +13,6 @@ At the end of the meeting, Emily and Maggie spoke to Kim for an hour.
 We were going to have a meeting, but it was rescheduled.
 
 
-**Weden
-
 **Thursday 20/03/2025**
 
 Had a meeting. Present at the meeting was Andrew, Kim, Maggie and Emily.
@@ -66,3 +64,14 @@ Maggie is off on training on Wednesday. There will be discussion tomorrow. They 
 She has asked Emily to call us tomorrow.
 
 Hermann's office is just across the road from Coles. We have an appointment for 10:00 am.
+
+**Wednesday 26/03/2025**
+
+First thing in the morning Kim sent an email to update Emily, and request a home visit.
+
+Around 1:30 - 2:00 PM Dr Emily and a new person called Julie telephoned Kim.
+They emailed a plan for Kim to share with Noah.
+They said they will call the next day (Thursday) and on Friday to check in and confirm a time 
+for a Friday visit. If everything is improved then they will keep their Monday appointment.
+They will not give a time for the Friday visit. They could not give a time, other than "It won't be before 1:00".
+They said that even though they could come, it could not be regular.
