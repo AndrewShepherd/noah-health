@@ -4,6 +4,12 @@ Noah is discharged from Wattyl.
 
 We were told that he was in the hands of the outreach team.
 
+**Friday 21/2/2025**
+
+Kim sends an email to Justin Williams.
+
+It has now been 16 days since Noah left the ward and no member of a Continuing Care team has sighted or spoken to him.
+
 **Thursday 27/2/2025**
 
 Emily and Maggie vist Noah. The meeting lasts for 20 minutes.
