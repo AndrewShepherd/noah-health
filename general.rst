@@ -108,11 +108,14 @@ They said that even though they could come, it could not be regular.
 
 **Thursday 27/03/2025**
 
-Dr Emily called but missed Kim and Kim returned the call.
+Dr Emily called but missed Kim and Kim returned the call. Dr Emily asked if we had shared the document with Noah and Kim said that she did not want to as it was not 
+appropriate for his age or intellectual level. (It was too infantalising). Dr Emily said thank you 
+for your feedback. Emily asked if we still wanted her to come tomorrow afternoon.
+Kim said that it was likely that Noah would be hospitalised today. 
+Kim asked to speak to Ashleigh. (The client liason person who we originally deal with) 
+Dr Emily did not now who Ashleigh was.
 
-Dr Emily asked if we had shared the document with Noah and Kim said that she did not want to as it was not 
-appropriate for his age or intellectual level. (It was too infantalising). Dr Emily accepted this.
 
-Kim said that it was likely that Noah would be hospitalised today.
-
-Kim asked to speak to Ashleigh. Dr Emily did not now who Ashleigh was.
+In another call, Kim spoke to Madeline, the current team leader. 
+She advised that Flora would be the person managing Noah.
+(We were not happy with that.)
