@@ -102,3 +102,14 @@ They said they will call the next day (Thursday) and on Friday to check in and c
 for a Friday visit. If everything is improved then they will keep their Monday appointment.
 They will not give a time for the Friday visit. They could not give a time, other than "It won't be before 1:00".
 They said that even though they could come, it could not be regular.
+
+**Thursday 27/03/2025**
+
+Dr Emily called but missed Kim and Kim returned the call.
+
+Dr Emily asked if we had shared the document with Noah and Kim said that she did not want to as it was not 
+appropriate for his age or intellectual level. (It was too infantalising). Dr Emily accepted this.
+
+Kim said that it was likely that Noah would be hospitalised today.
+
+Kim asked to speak to Ashleigh. Dr Emily did not now who Ashleigh was.
