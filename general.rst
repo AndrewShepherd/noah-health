@@ -7,13 +7,23 @@ to Wattyl.
 
 Noah is discharged from Wattyl.
 
-We were told that he was in the hands of the outreach team.
+We were told that he was in the hands of the continuing care team.
+
+
+**This crazy limbo period between then**
+
+They called Noah and asked for consent.
 
 **Friday 21/2/2025**
 
 Kim sends an email to Justin Williams.
 
 It has now been 16 days since Noah left the ward and no member of a Continuing Care team has sighted or spoken to him.
+
+**Sometime Before Thursday 27/2/2025**
+
+Kim spoke to her GP, and he made an urgent request to CHYMS.
+
 
 **Thursday 27/2/2025**
 
@@ -119,3 +129,22 @@ Dr Emily did not now who Ashleigh was.
 In another call, Kim spoke to Madeline, the current team leader. 
 She advised that Flora would be the person managing Noah.
 (We were not happy with that.)
+
+At **2:21** Madeline called back. Penny Larkin is the doctor.
+We can be a "private patient" at Southport and have a different
+psychiatrist. We could get an ambulance to take him to the
+emergency department of a private hospital for medical help.
+He would have to be a voluntary patient, rather than being
+under the mental health care act. They will still check in
+tomorrow morning.
+
+Madeline said the restricted eating is symptomatic to the depressive
+episode, not the other way round.
+
+Kim dialed 000 and requested an ambulance to check on his physical health.
+
+Two men came around, a Mental Health professional called Scott and a paramedic.
+They did some basic tests on him and came to the conclusion that he was not
+medically compromised and did not need to go to hospital. Scott also talked to
+Noah for a while. Noah said things like "I'm out of hospital, I just want to do
+my own thing, but they keep calling and texting me"
