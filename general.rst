@@ -97,7 +97,10 @@ Hermann's office is just across the road from Coles. We have an appointment for 
 First thing in the morning Kim sent an email to update Emily, and request a home visit.
 
 Around 1:30 - 2:00 PM Dr Emily and a new person called Julie telephoned Kim.
-They emailed a plan for Kim to share with Noah.
+They emailed a plan for Kim to share with Noah. `Engaging with your team <./engaging%20with%20your%20team.docx>`_
+
+
+
 They said they will call the next day (Thursday) and on Friday to check in and confirm a time 
 for a Friday visit. If everything is improved then they will keep their Monday appointment.
 They will not give a time for the Friday visit. They could not give a time, other than "It won't be before 1:00".
