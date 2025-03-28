@@ -148,3 +148,20 @@ They did some basic tests on him and came to the conclusion that he was not
 medically compromised and did not need to go to hospital. Scott also talked to
 Noah for a while. Noah said things like "I'm out of hospital, I just want to do
 my own thing, but they keep calling and texting me"
+
+**Friday 28/03/2024**
+
+In the morning Kim received a call from Dr Emily and Maggie to say that they
+would no longer be visiting on this day (Friday) but on Monday instead.
+The reason they gave was that, because he had been assessed by Scott and was
+not considered to be medically compromised then the appointment would be 
+better on Monday which was originally planned because at that point his medication
+(which we were doubting he was actually taking) would be taking effect.
+Kim got upset, saying that Scott had explicitly told Noah to expect them that day
+and it would just further exacerbate his frustration and mistrust of the medical
+establishment. 
+
+After gathering her thoughts and discussing with her husband,
+Kim called the office, wanting to talk to Belinda or the team leader, as she 
+suspected that Dr Emily or Maggie did not have authority to make a new decision.
+Kim was told that they had all ducked out of the office for twenty minutes.
