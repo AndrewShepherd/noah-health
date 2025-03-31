@@ -165,3 +165,116 @@ After gathering her thoughts and discussing with her husband,
 Kim called the office, wanting to talk to Belinda or the team leader, as she 
 suspected that Dr Emily or Maggie did not have authority to make a new decision.
 Kim was told that they had all ducked out of the office for twenty minutes.
+
+In the afternoon Kim spoke to Amanda, the team leader. Apparently Belinda 
+was in the room, but she did not say a word.
+Amanda wanted to know the reason why Kim wanted to speak to her.
+Kim told her story to Amanda. Amanda tried to argue that there was no
+meeting scheduled for the Friday afternoon. 
+Kim pointed out that Maggie, Madeline and Emily had all talked about
+a Friday afternoon meeting. When confronted with what Scott said,
+Amanada said she was not responsible for that paramedics say.
+She did not answer the question.
+
+Amanda said that AMIOS would not take them.
+Kim said that AMIOS was discussed by Justin and Maggie.
+She stressed that they made the decision to service him knowing full well
+that he was unable to leave the house.
+They would have known fully well what service
+
+Kim said that she had always said that phones and letters
+would not work.
+
+Kim pointed out that there would be three more days of no eating.
+
+Kim ended the meeting making it clear that this was not a compassionate
+or logical decision based on the information she had.
+
+**Mondey, 31st March 2025***
+
+At **10:15** Belinda and Maggie visted at our home. Dr Emily was unable
+to attend due to injuring herself on the weekend.
+
+In the discussion prior to them attempting to talk to Noah,
+we talked about the medication and his general state.
+
+At **10::26** they went and knocked on Noah's bedroom door.
+
+At **10:51** Noah had not let his room. Kim and Andrew asked them to come
+downstairs and talk to us, but they just said they would really like to 
+talk to Noah. Kim knocked on the door, and Noah yelled "Fuck Off" at the top
+of his voice. The parents made it very clear that Noah was not going to leave
+his room, but they remained outside his room anyway.
+
+Belinda said that young people are very challenging. Not the first to barricade 
+them in their room. Amios is the only outreach program in the private sector,
+but for up to 18.
+
+"Young Adult Services" is the service that said they could not act because
+he is "not consenting".
+
+He does not fit the CYMH model. They are trying to "adapt" their model to fit Noah.
+
+Acknoweldged that Justin made some promises. 
+
+They wanted to do a "capacity assessment" to see if he lacks capacity to go under the 
+mental health act. She believes he has limited capacity and it would not be in his 
+interest.
+
+We asked them to justify why they decided not to come on Friday. If would require them to
+shuffle appointments around on Friday. They were only going to cancel those appointments
+if he was medically compromised. But because the ambulance said he was not medically
+uncompromised, so they kept the other appointments.
+
+Kim expressed he frustration about being shuffled from one department to another.
+
+Belinda says she has special permission to keep Noah after he has turned 18.
+It gets tricky with the consent thing, but she will be abe to give support to us.
+
+Their model of service says they will do an initial outreach only.
+It's a resource-intensive activity. They are will to try and do that.
+They can't do it for six months.
+
+They are happy to link us to private providers.
+
+They are an acute short term service. 3 to 6 months top.
+That's how it works in public mental health.
+
+Kim talked about PDA and his need to independence. We currently put out food,
+and it would be better if he got it himself. Do we stop enabling that?
+Belinda did not have an answer, just reworded the dilemma. 
+
+Talk about how NOah would have a perspective that's completely skewed, from being locked
+away in the world.
+
+Belinda said she's happy to try again and visit.
+
+Talked about youth workers again. Would be nice if we got a young guy.
+
+Actions from this meeting. They will discuss every case at their meeting on Wednesday
+morning. Belinda chairs the meeting. They will do more outreach and link us with community 
+service that can help. We need identity formation, individuation, build up his confidence.
+
+Kim: we need a support worker. How qualified and experienced would this worker be.
+
+Discussed Eden and how much we put on him. Belinda: he should just be a connection,
+not a parent.
+
+Belinda: with regards to hospital and getting treatment in an intensive way.
+Robina Private would take him, but it has to be voluntary. He did see some benefit
+that Wattyl got him talking to people again. There are other options, but they have 
+to be voluntary and he cannot be medically compromised.
+
+Talked about how Noah told Scott on Thursday how he thought that his record 
+will be wiped when he turns 18. Somebody needs to explain to him that his
+records are very private.
+
+Belinda alerted us to potential conflict of interest because she works at Robina 
+private working with out patients. Belinda would not be able to work with Noah
+at Robina Private because of the conflict.
+
+We talked about the messages that says "Please call to confirm if you are unable to attend."
+
+Talked about the conversation with Amanda. Amanda does operational, Belinda does clinical.
+
+Maggie says she will call at the end of the day and will schedule the next home visit.
