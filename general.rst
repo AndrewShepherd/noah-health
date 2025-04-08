@@ -273,6 +273,20 @@ Belinda alerted us to potential conflict of interest because she works at Robina
 private working with out patients. Belinda would not be able to work with Noah
 at Robina Private because of the conflict.
 
+**Tuesday 8/04/2025**
+
+Kim canclled the pending appointment at our house with Noah, because Noah is currently sleeping between 9am and 5 pm.
+
+**Wednesday 9/04/2025**
+
+Kim and Maggie talked on the phone. Kim reiterated that she did not think it was worth them coming:
+
+- Noah was getting up at 5pm at that moment
+- It was his 18th birthday the next day. He might see this as a last ditch effort to control him.
+
+Maggie said that they were still willing to talk to Noah on the parent's consent even after Noah was 18.
+
+Kim agreed that we still needed help, and suggested they talk again on Monday.
 We talked about the messages that says "Please call to confirm if you are unable to attend."
 
 Talked about the conversation with Amanda. Amanda does operational, Belinda does clinical.
