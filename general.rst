@@ -292,3 +292,25 @@ We talked about the messages that says "Please call to confirm if you are unable
 Talked about the conversation with Amanda. Amanda does operational, Belinda does clinical.
 
 Maggie says she will call at the end of the day and will schedule the next home visit.
+
+**Monday 12/5/2025**
+
+Meeting with Kim, Andrew and Belinda.
+
+Question about keeping up the prescription. Belinda can give us a 6 month supply.
+After that Noah needs a GP. It should not be a big deal - simply say that this is working
+and he would like a new one.
+
+20mg is the "therapeutic dose". We could up it for an anxiety dose.
+
+We talk about his presentation.
+
+- Stays in his room
+- Comes out of his room if the parents are not at home. He will not occupy the same room as his parents. Comes downstairs
+ to see Eden. 
+- His hair is a frightful mess.
+- Last night he shaved and brushed his teeth, and showers regularly.
+- He eats.
+- Medication disappears, we think he's taking it. (Vitamin D, fluoxetine).
+- Heard it him crying once. But no wailing.
+- Every time he's about to try and do something he grooms himself.
