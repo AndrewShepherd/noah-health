@@ -342,3 +342,9 @@ When he goes to a GP to get his fluoxetine he should get a meningacoccal immuniz
 
 We need a list of other support things.
 hibernate in their rooms.  Leave them their and they come out on their own.
+
+Belinda does not think medication is a solution. We think that we don't want to increase the dosage
+because then its worse.
+
+What happens if we run out of medication in November and we cannot get him to a GP? Could we get a GP
+to prescribe it without seeing him? Answer, no. He has to see the GP face to face.
