@@ -348,3 +348,8 @@ because then its worse.
 
 What happens if we run out of medication in November and we cannot get him to a GP? Could we get a GP
 to prescribe it without seeing him? Answer, no. He has to see the GP face to face.
+
+Talked about the future relationship with the service. It's a short term, acute service.
+Even though they are happy to keep us on for now, this will be closed soon.
+
+
