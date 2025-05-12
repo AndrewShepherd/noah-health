@@ -314,3 +314,19 @@ We talk about his presentation.
 - Medication disappears, we think he's taking it. (Vitamin D, fluoxetine).
 - Heard it him crying once. But no wailing.
 - Every time he's about to try and do something he grooms himself.
+
+Questions:
+
+- Why does he not leave the house? We should give him a hoodie, beanie or hat to deal with the hair.
+
+He had a plan for his 18th birthday to catch a train to Brisbane to the unit. He could not bring himself to.
+
+It feels "stable" at the moment, like we're in a holding pattern. He's in a comfort zone. At some point boredom might
+make him push himself.
+
+Belinda says we're doing the right thing, allowing things to stabilize.
+
+Belinda says we could talk about what course we can get him into which would be the equivalent of completing 
+year 12.
+
+What are his goals now? We don't really know, he won't talk to us.
