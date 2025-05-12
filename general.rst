@@ -352,4 +352,6 @@ to prescribe it without seeing him? Answer, no. He has to see the GP face to fac
 Talked about the future relationship with the service. It's a short term, acute service.
 Even though they are happy to keep us on for now, this will be closed soon.
 
+We will have to get a referal to a private psychiatrist.
+
 
