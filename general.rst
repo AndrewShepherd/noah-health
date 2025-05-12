@@ -330,3 +330,15 @@ Belinda says we could talk about what course we can get him into which would be 
 year 12.
 
 What are his goals now? We don't really know, he won't talk to us.
+
+Belinda admitted she doesn't have a solution. She doesn't believe this will last.
+Noone wants to sit in their room all of their lives. Just play the long game.
+
+We asked for experiences of kids who come out of the other side. There a lot of boys who 
+
+Parents must be Bigger, stronger, wiser and kind.
+
+When he goes to a GP to get his fluoxetine he should get a meningacoccal immunization.
+
+We need a list of other support things.
+hibernate in their rooms.  Leave them their and they come out on their own.
